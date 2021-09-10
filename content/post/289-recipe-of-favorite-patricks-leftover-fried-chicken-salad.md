@@ -1,0 +1,95 @@
+---
+description: "Recipe of Favorite Patrick’s Leftover Fried Chicken Salad"
+title: "Recipe of Favorite Patrick’s Leftover Fried Chicken Salad"
+slug: 289-recipe-of-favorite-patricks-leftover-fried-chicken-salad
+date: 2021-07-26T04:04:23.346Z
+image: https://img-global.cpcdn.com/recipes/6a3f2ddbe3d94e15/680x482cq70/patricks-leftover-fried-chicken-salad-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/6a3f2ddbe3d94e15/680x482cq70/patricks-leftover-fried-chicken-salad-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/6a3f2ddbe3d94e15/680x482cq70/patricks-leftover-fried-chicken-salad-recipe-main-photo.jpg
+author: Iva Doyle
+ratingvalue: 4.2
+reviewcount: 20235
+recipeingredient:
+- " boiled red potatoes quartered"
+- " celery"
+- " fried chicken  picked off the bone"
+- " blue cheesefeta cheese"
+- " dillparsley chopped"
+- " whole grain mustard"
+- " hot sauce to taste"
+- " salt  pepper to taste"
+- " mayonnaise"
+- " greek yogurt"
+recipeinstructions:
+- "Remove the chicken from the bone and place into a large mixing bowl. Add chopped celery, chopped herbs, and cheese to the bowl."
+- "Wash and quarter your red potatoes. Boil in salted water until a fork will easily pierce the potato. Remove from the stove and drain. Allow to come to a room temperature and then add to the mixing bowl."
+- "Add a tablespoon or more of whole grain mustard and salt &amp; pepper."
+- "Now comes the saucing. Add equal amounts of mayonnaise and greek yogurt to the bowl. Mix. You want the components to all be covered but not drowning in white. I recommend adding half of what you think you will use and then adding more mayo if you&#39;d like a creamier chicken salad or more greek yogurt if you’d like a little more tang."
+- "The next step up to you! Enjoy this chicken salad in a sandwich or wrap, put a scoop on your salad, or if you’re like me crunch up some potato chips and sprinkle them on top of a heaping bowl and lunch/dinner/snack is served!"
+- "Either mayo or greek yogurt can be used, I like the combination but if one tickles your fancy go with it. The only hard and fast rule of chicken salad is NO MIRACLE WHIP. That’s all."
+- "Proportions, proportions, proportions. I play with the proportions and ratios of this salad all the time, but as I said above it really does depend on how much fried chicken I have leftover. I typically make large batches of chicken salad and have it throughout the week for lunch/dinner/snacks."
+- "I pick the fried chicken off the bone over the mixing bowl so that all the crunchy bits of breading fall in and I have more crunch in my salad!"
+categories:
+- Recipe
+tags:
+- patricks
+- leftover
+- fried
+
+katakunci: patricks leftover fried 
+nutrition: 202 calories
+recipecuisine: American
+preptime: "PT16M"
+cooktime: "PT56M"
+recipeyield: "2"
+recipecategory: Lunch
+
+---
+
+
+![Patrick’s Leftover Fried Chicken Salad](https://img-global.cpcdn.com/recipes/6a3f2ddbe3d94e15/680x482cq70/patricks-leftover-fried-chicken-salad-recipe-main-photo.jpg)
+
+Hey everyone, I hope you are having an incredible day today. Today, we're going to prepare a special dish, patrick’s leftover fried chicken salad. It is one of my favorites. For mine, I am going to make it a bit tasty. This will be really delicious.
+
+
+
+Patrick’s Leftover Fried Chicken Salad is one of the most favored of recent trending foods on earth. It is simple, it is fast, it tastes yummy. It is appreciated by millions daily. Patrick’s Leftover Fried Chicken Salad is something which I've loved my whole life. They are nice and they look wonderful.
+
+
+To get started with this particular recipe, we have to prepare a few ingredients. You can cook patrick’s leftover fried chicken salad using 10 ingredients and 8 steps. Here is how you can achieve that.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Patrick’s Leftover Fried Chicken Salad:
+
+1. Make ready  boiled red potatoes (quartered)
+1. Get  celery
+1. Get  fried chicken - picked off the bone
+1. Make ready  blue cheese/feta cheese
+1. Make ready  dill/parsley (chopped)
+1. Take  whole grain mustard
+1. Prepare  hot sauce to taste
+1. Get  salt &amp; pepper to taste
+1. Take  mayonnaise
+1. Prepare  greek yogurt
+
+
+
+
+<!--inarticleads2-->
+
+##### Instructions to make Patrick’s Leftover Fried Chicken Salad:
+
+1. Remove the chicken from the bone and place into a large mixing bowl. Add chopped celery, chopped herbs, and cheese to the bowl.
+1. Wash and quarter your red potatoes. Boil in salted water until a fork will easily pierce the potato. Remove from the stove and drain. Allow to come to a room temperature and then add to the mixing bowl.
+1. Add a tablespoon or more of whole grain mustard and salt &amp; pepper.
+1. Now comes the saucing. Add equal amounts of mayonnaise and greek yogurt to the bowl. Mix. You want the components to all be covered but not drowning in white. I recommend adding half of what you think you will use and then adding more mayo if you&#39;d like a creamier chicken salad or more greek yogurt if you’d like a little more tang.
+1. The next step up to you! Enjoy this chicken salad in a sandwich or wrap, put a scoop on your salad, or if you’re like me crunch up some potato chips and sprinkle them on top of a heaping bowl and lunch/dinner/snack is served!
+1. Either mayo or greek yogurt can be used, I like the combination but if one tickles your fancy go with it. The only hard and fast rule of chicken salad is NO MIRACLE WHIP. That’s all.
+1. Proportions, proportions, proportions. I play with the proportions and ratios of this salad all the time, but as I said above it really does depend on how much fried chicken I have leftover. I typically make large batches of chicken salad and have it throughout the week for lunch/dinner/snacks.
+1. I pick the fried chicken off the bone over the mixing bowl so that all the crunchy bits of breading fall in and I have more crunch in my salad!
+
+
+
+
+So that's going to wrap it up with this special food patrick’s leftover fried chicken salad recipe. Thank you very much for your time. I am sure that you can make this at home. There is gonna be interesting food in home recipes coming up. Remember to bookmark this page in your browser, and share it to your loved ones, colleague and friends. Thanks again for reading. Go on get cooking!
